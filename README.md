@@ -1,1 +1,1 @@
-# bornokuttush.github.io
+japanese
